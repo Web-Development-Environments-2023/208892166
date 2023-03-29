@@ -1,1 +1,2 @@
-The website is fo the mobile too and please click on the full experience when you are inside the website
+The website is for the mobile too.
+Please click on the full experience when you are on the website.
